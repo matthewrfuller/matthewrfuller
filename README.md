@@ -1,3 +1,3 @@
 Matthew Fuller
-- Currently ORISE postdoc at the US EPA Atlantic Coastal Environmental Science Division in Narraganset, RI
-- Email: matthew.robert.fuller@gmail.com
+- Ecologist, USDA Forest Service, Northern Research Station, UMass-Amherst, Amherst MA
+- Email: matthew.fuller@usda.gov
